@@ -1,4 +1,11 @@
-Willhelm Raabe
-Die Chronik der Sperlingsgasse
-Reclam
-UN dibujo de una noche en una ciudad desconocida donde se ve la luna, tres chimeneas, una calle que termina en un muro con dos edificios a los lados y dos gatos en posición de lucha o algo más interesante...
+Cuando el reggae se hizo universal
+50 años después de su fundación, se relanza Discos Troyanos, sello clave en la globalización de la música jamaicana que sembró las semillas de festivales como el ROTOTOM, que arranca ayer.
+DIOS MUSICAL ESTILO ARISTÓTELES. M.
+Es una de las historias mas extraordinarias de la descolonización. A pesar de ser una isla perdida en el Caribe, con 1.700.000 habitantes y el hombre más rápido sobre la tierra conocida, Jamaica alcanzó la independencia antes que Cataluña. Jamaica ha logrado contagiar su música a todo el planeta. Hazaña aún más asobrosa habida cuenta de que el reggae suele llevar una explosiva carga político[ nada que ver con la Bomba Navarro, o aniversario trágicos]-social, la ideología rastafariana(cuyo rey vive en Etiopía o vivía, son un poco machistas, todo hay que decirlo).
+Y semejante impacto cultural no hubiera sido posible (o sé hubiera retrasado más) sin la discreta labor de una discográfica británica, Discos Troyanos [nada que ver con los caballeros de la mesa cuadrada o algún gag de Monty Python Flying Circus]. No se trataba precisamente de una organización no gubernamental. Sus fundadores eran emprendedores en busca de unicornios negros con cuernos en la frente de piel relativamente pálida... Espero que esté en internet. Estoy a 39% de batería y el viento me ha llevado a CARTAS AL DIRECTOR. La destacada:
+España negra, España profunda
+En agosto es difícil que a quien tiene un mínimo de sensibilidad no se le encoja el corazón al ver vídeos de fiestas de pueblos de nuestro país en las que un año más, se producen escenas de maltrato animal. Un maltrato legal y financiado con dinero público. Becerradas donde los más desalmados del pueblo, bebidos, se dedican a torutar y matar a un pobre bebé de toro que aún no está destetado. En algunos pueblos de Guadaljara sueltan a un toro en el campo y lo persiguen con coches, tractores, _quads_ y motos, y lo atoremantan durante horas antes matarlo.
+No hay región de España donde no se cometan actos burales y miserables pagados con dinero público, tan solo hay que buscar en internet... pornhub.com o meterte en la Deep Web para ver cosas más salvajes con seres humanos. O esperar al que viento pase las hojas del periódico para leer 1356 páginas que detallan los horrores.
+Italia declara el estado de emergecia en Génova por un año, pero corazones abiertos con los negros que cruzan mares.
+Apple tiene mucha pasta y muchos animales. Buffet, cree en ellos. En capítulos anteriores, exactamente el tercer día de este mes.
+RESCATADOS 524 INMIGRANTES EN EL ESTRECHO GRACIAS A LOS GIBRALTAREÑOS Y LAS GASOLINERAS DEL DE MEDIOAMBIENTE EN EUROPA.
